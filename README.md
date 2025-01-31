@@ -1,1 +1,1 @@
-Networking, Cloud and AI passionate.
+Cloud, Networking and AI passionate.
