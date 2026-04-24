@@ -1,1 +1,1 @@
-Cloud, Networking and AI passionate.
+DevOps, Networking, Gaming and AI passionate.
